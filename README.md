@@ -1,4 +1,4 @@
-# Hi, I'm Renee Kao! 👋🌼
+# Hi, I'm Renee Kao! 🧢
 
 ## About Me
 - 🎓 Pursuing a Master's in Applied Business Analytics in Ottawa.
